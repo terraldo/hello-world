@@ -3,5 +3,5 @@ My Repository
 
 Hello Folks
 
-tb here, loving the breezze
-Riding til the road ends
+tb here, loving the breeze
+Riding until the road ends...
